@@ -12,8 +12,10 @@ Hi, Racquel here and welcome to my ReadMe. This is an evolving document. So stay
 Well, it depends if that business negatively impacts the health & wellbeing of the Black community...then yes inquiring minds want to know. ![image](https://github.com/user-attachments/assets/52f26edd-2485-4fab-a93c-a176a124133f) So talk up.
 
 
-# My professional background ![image](https://github.com/user-attachments/assets/97ebfac9-c257-4712-b2d9-d8904c22722a)
-
+# ![image](https://github.com/user-attachments/assets/97ebfac9-c257-4712-b2d9-d8904c22722a) My professional background 
+- I have a clinical research and consulting background. My Masters degree is in Disaster & Emergency Management
+- After hours I plot on how I will one day rule the world
+- On another note, if you ever need advice on all things love, relationship, dating, and confidence I am a Certified Life & Confidence Coach. Hit me up and maybe we can book a session.
 
 
 # 🌱 I’m currently learning ...
@@ -22,11 +24,13 @@ Well, it depends if that business negatively impacts the health & wellbeing of t
 
 # 📫 How to reach me 
 - Feel free to send me a Slack message. Email is great as well.
+
+  
 # ![image](https://github.com/user-attachments/assets/fb9d9952-4998-4b84-9482-723c7eb3d296)How to give me feedback
 - I'm a fairly reasonable person. Direct communication works well for me. If there is a concern please feel free to have a respectful, diplomatic yet direct conversation with me. With the ground rules of mutual respect in place, the aim will always be to find an agreeable solution. If not feel free to speak the God-Father (aka my Boss), Don Paul Bailey.
 
   
-# What Brings Me Joy ![image](https://github.com/user-attachments/assets/635b7e7c-139c-4dff-98d2-a259215f012a)
+# ![image](https://github.com/user-attachments/assets/7ed3c114-5688-4f3c-9a8e-9917cc9a50ab) What brings me joy 
 
 In no particular order, 
 - the sound of children laughing 😄,
@@ -34,7 +38,7 @@ In no particular order,
 - and of course a fresh install! ![image](https://github.com/user-attachments/assets/97f925d2-ba88-4f53-8e4c-0486994d098b)
 
 
-# My favourite cuisine ![image](https://github.com/user-attachments/assets/cec38908-c856-4935-836d-b39979d201f3)
+# ![image](https://github.com/user-attachments/assets/cec38908-c856-4935-836d-b39979d201f3) My favourite cuisine 
 - All that is flavourful and well seasoned! Lol! Aside from Caribbean food, I enjoy Thai, Vietnamese, tasty vegan dishes, and Ghanian peanut soup.
 
   
