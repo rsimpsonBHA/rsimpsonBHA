@@ -27,7 +27,7 @@ Well, it depends if that business negatively impacts the health & wellbeing of t
 
   
 # ![image](https://github.com/user-attachments/assets/fb9d9952-4998-4b84-9482-723c7eb3d296)How to give me feedback
-- I'm a fairly reasonable person. Direct communication works well for me. If there is a concern please feel free to have a respectful, diplomatic yet direct conversation with me. With the ground rules of mutual respect in place, the aim will always be to find an agreeable solution. If not feel free to speak the God-Father (aka my Boss), Don Paul Bailey.
+- I'm a fairly reasonable person. Direct communication works well for me. If there is a concern please feel free to have a respectful, diplomatic yet direct conversation with me. With the ground rules of mutual respect in place, the aim will always be to find an agreeable solution. If not feel free to speak the godfather (aka my Boss), Don Paul Bailey.
 
   
 # ![image](https://github.com/user-attachments/assets/7ed3c114-5688-4f3c-9a8e-9917cc9a50ab) What brings me joy 
